@@ -1,0 +1,4 @@
+- 👋 hiya, i’m dorothy :) @dfranklinstein
+- 💞️ i'm a gamer who likes mods, espically for the 3ds
+- 🪴 here 4 the vibes + chats
+- 📫 how to reach me: @/dfranklinstein on insta + @/d_franklinstein on twitter :)
